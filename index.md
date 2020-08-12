@@ -1,3 +1,3 @@
-This will be a [[personal_wiki]].
+This will is a [personal wiki](personal_wiki).
 
-Right now it contains a page about [[influential art]].
+Right now it contains a page about [art that has influenced my life](influential_art).
