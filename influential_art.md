@@ -11,25 +11,25 @@ Anime
 
 * Serial Experiments Lain - My earliest introduction to true pure cyberpunk and transhumanism. I still love to read theories about it.
 * FLCL
-* Toradora
+* Toradora - This isn't a very deep inclusion. I like slow burn love stories with flawed characters and a lot of tearjerking.
 * Neon Genesis Evangelion
 * Cowboy Bebop
-* Haruhi Suzumiya
+* Haruhi Suzumiya - Haruhi Suzumiya was, in retrospect, the opening point for my venture into Magical Realism and modern fantasy. It balanced explaining itself and forcing you to just go with it in pleasing ways. And it had startling artistic depth (Endless Eight, the allusions to Rosencrantz and Guildernstern Are Dead) juxtaposed with silly light storytelling. It's not without problems, notably the excessively long fanservice scenes that increasingly annoy me in anime as I get older and grumpier. But there's a lot to love about it, especially the movie.
 
 Books
 -----
 
-* Haruhi Suzumiya
-* Dune
+* Haruhi Suzumiya - While I was introduced to this via the TV series, I understood Kyon much more deeply in the visual novels. See the anime section for more proper gushing.
+* Dune - When I was young I found this viewpoint compelling. The revolutionary power of the rugged individual from a powerful bloodline with a powerful coalition of religious zealots behind him. Now, I can see where Herbert's ideas came from. But man, did he poorly predict the future. He poorly understood how technology would impact life, and how geopolitics would change alongside it. Most importantly, his idea of the violently righteous just doesn't resonate with me in any way anymore.
 * That Was Then, This is Now
 * Little, Big and Engine Summer
 
 Movies
 ------
 
-* Big Fish
+* Big Fish - Watched this with my dad, and loved it for its storytelling and uniqueness. He has since passed away. Just watch it to understand why that has strengthened my connection to it.
 * Primer
-* Moonrise Kingdom
+* Moonrise Kingdom - Love Wes Anderson, love quirky love stories. Yes.
 * 5cm Per Second
 
 Music
