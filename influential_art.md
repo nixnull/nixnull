@@ -23,6 +23,7 @@ Books
 * Dune - When I was young I found this viewpoint compelling. The revolutionary power of the rugged individual from a powerful bloodline with a powerful coalition of religious zealots behind him. Now, I can see where Herbert's ideas came from. But man, did he poorly predict the future. He poorly understood how technology would impact life, and how geopolitics would change alongside it. Most importantly, his idea of the violently righteous just doesn't resonate with me in any way anymore.
 * That Was Then, This is Now
 * Little, Big and Engine Summer
+* Factfulness - This one is a recommendation. This book will teach you to think about progress in the world in a different way. The short of its thesis is that we don't notice slow progress, so we don't notice that life on average gets better worldwide every year. But trust me, there's so much more to this book that will change how you think.
 
 Movies
 ------
